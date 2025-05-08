@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **community-driven projects that focus on learning, sharing knowledge, and helping others.**
 
-- 📫 How to reach me **jannattulferdous885544@gmail.com**
+- 📫 How to reach me **jannatulferdous885544@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
